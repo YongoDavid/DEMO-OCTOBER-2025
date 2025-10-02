@@ -5,3 +5,4 @@ NEW MONTH, LETS GOOO!!!
 NEW DAY, NEW MONTH SAME!
 
 02 OCT
+New day, same grind.
