@@ -15,3 +15,5 @@ New week, new day,same grind.
 
 07 OCT
 New day, same grind!
+
+08 OCT
