@@ -31,8 +31,10 @@ New day, same grind.
 13 OCT
 New dayy, new week, more grind.
 
-14
+14 OCT
 New day, same grind
 
-15
+15 OCT
 New day, same grind!
+
+16 OCT
