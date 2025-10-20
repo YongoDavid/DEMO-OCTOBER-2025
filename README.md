@@ -44,4 +44,6 @@ New day, same grind.
 New day, same grind.
 
 19 OCT
-Sunday, cill day but putting in light work.
+Sunday, chill day but putting in light work.
+
+20 OCT
