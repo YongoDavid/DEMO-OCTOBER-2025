@@ -57,3 +57,4 @@ New day, same grind.
 Still working on AIxEcom
 
 24 OCT
+New day, sam grind.
