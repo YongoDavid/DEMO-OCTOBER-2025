@@ -59,3 +59,5 @@ Still working on AIxEcom
 24 OCT
 New day, sam grind.
 Rounding up AIxEcom project.
+
+26 OCT
