@@ -64,4 +64,6 @@ Rounding up AIxEcom project.
 Sunday chill day, but putting in light work.
 
 27 OCT
-New week, new day, same grind..
+New week, new day, same grind.
+
+28 OCT
