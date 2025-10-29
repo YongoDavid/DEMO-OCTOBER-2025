@@ -73,3 +73,4 @@ Its time to move on to Phase2 which is AI integration in the Ecom Webapp.
 
 29 OCT
 New day, more grind.
+I am stil wworking on Phase2,currently researching and experimenting.
