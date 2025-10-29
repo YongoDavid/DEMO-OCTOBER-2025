@@ -70,3 +70,5 @@ New week, new day, same grind.
 Ne day, more grind.
 AIxECOM Phase1 is complete!!
 Its time to move on to Phase2 which is AI integration in the Ecom Webapp.
+
+29 OCT
