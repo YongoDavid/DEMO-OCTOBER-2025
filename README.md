@@ -76,3 +76,4 @@ New day, more grind.
 I am stil working on Phase2,currently researching and experimenting.
 
 30 OCT
+New day, same grind.
