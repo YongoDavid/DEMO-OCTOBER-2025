@@ -80,3 +80,4 @@ New day, same grind.
 Keep on keeping on.
 
 31 OCT
+Last day of october.
