@@ -82,3 +82,5 @@ Keep on keeping on.
 31 OCT
 Last day of october.
 Amazing month so far, alot of ups and downs but i kept on keeping on.
+
+Amazing month, done and dusted.
